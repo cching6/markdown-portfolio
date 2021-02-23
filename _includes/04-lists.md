@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. pizza  :+1:
+2. pizzza :smile:
+3. pizzzza :tada:
